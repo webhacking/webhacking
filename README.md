@@ -1,8 +1,9 @@
-My name is YoungJun Woo and 23 years old.
+## Currently Playing on {CURRENT_PLAYING_SOURCE}
 
-I'm a software engineer mainly interested in web development and programming tools and technologies
+[<img align="left" width="100" src="https://i.ytimg.com/vi/d_H4AdS8vCA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UC0c4bK_92XYr0YtASqqWOJg)
 
-Some of my interests include modern JavaScript and Python
+DJ Snake (DJ 스네이크), J Balvin(제이 발빈) 및 오즈나 - Loco Contigo(피처링: Nicky Jam, 나티 나타샤, Darell, Sech)
 
-I'm always in hunger of learning new things and sharing what i have learned.
+**Albums**: undefined
 
+Last updated at 2020. 7. 17. 오후 3:16:58
