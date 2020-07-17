@@ -6,4 +6,4 @@ VINXEN
 
 **Albums**: 고등래퍼2 Final
 
-Last updated at 2020. 7. 17. 오후 6:08:37
+Last updated at 2020. 7. 17. 오후 6:09:37
