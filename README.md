@@ -6,4 +6,4 @@ pH-1, Kid Milli 및 Loopy
 
 **Albums**: Show Me the Money 777 (Episode 1)
 
-Last updated at 2020. 7. 17. 오후 5:50:37
+Last updated at 2020. 7. 17. 오후 5:51:37
