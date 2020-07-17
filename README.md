@@ -1,9 +1,9 @@
-## Now I'm listening Recovery 🎵🎵
+## Now I'm listening Havana(피처링: 영 서그) 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/scfUHrm-PgA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCGvj8kfUV5Q6lzECIrGY19g)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/BQ0mxQXmLsk/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCsZIVNwBqtPBX-41kO_rQzQ)
 
-Justin Bieber(저스틴 비버)
+Camila Cabello(카밀라 카베요)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 5:36:37
+Last updated at 2020. 7. 17. 오후 5:37:37
