@@ -6,4 +6,4 @@ Lukas Graham(루카스 그레이엄) - {CURRENT_PLAYING_NAME}
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 3:21:12
+Last updated at 2020. 7. 17. 오후 3:22:12
