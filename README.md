@@ -1,9 +1,9 @@
-## Now I'm listening Don't You Worry Child(피처링: John Martin) 🎵🎵
+## Now I'm listening Recovery 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/1y6smkh6c-0/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCl5p1gD46TZVsoQmM8VZ2gQ)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/scfUHrm-PgA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCGvj8kfUV5Q6lzECIrGY19g)
 
-Swedish House Mafia
+Justin Bieber(저스틴 비버)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 4:25:16
+Last updated at 2020. 7. 17. 오후 5:36:37
