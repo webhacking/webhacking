@@ -1,9 +1,9 @@
-## Now I'm listening Bar Code (Prod. GroovyRoom) 🎵🎵
+## Now I'm listening 시간이 들겠지(피처링: Colde (콜드)) 🎵🎵
 
-[<img align="left" width="100" src="https://lh3.googleusercontent.com/srgThyW3aHdwanmPofDtGToIrNMZVr3kpTwTH64iV6_a2P9U83Vh9nMub5UCMUJ5JIxBtEviMnROqVhXOA">](https://music.youtube.com/channel/UCa6xaGioOMH9tlLNlPI7OMQ)
+[<img align="left" width="100" src="https://lh3.googleusercontent.com/f0vBw7f9CkLrsJpnOn4qjXz9jQsvzusRnyADnUFSlylhEwTa4PKmrewqM30zAg5KvhCudps-vVtrYLpQLg">](https://music.youtube.com/channel/UCJVA-stKCH0IS_C1qIOUjTA)
 
-김하온 및 이병재 (Vinxen)
+로꼬
 
-**Albums**: School Rapper2 Team-Battle Part 3
+**Albums**: 시간이 들겠지
 
-Last updated at 2020. 7. 17. 오후 6:03:37
+Last updated at 2020. 7. 17. 오후 6:04:37
