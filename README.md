@@ -1,9 +1,9 @@
-## Now I'm listening What Lovers Do(피처링: SZA) 🎵🎵
+## Now I'm listening Love Yourself 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/5Wiio4KoGe8/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCdFe4KkWwZ_twpo-UECR-Nw)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/oyEuk8j8imI/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCGvj8kfUV5Q6lzECIrGY19g)
 
-Maroon 5(마룬 파이브)
+Justin Bieber(저스틴 비버)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 5:46:37
+Last updated at 2020. 7. 17. 오후 5:47:37
