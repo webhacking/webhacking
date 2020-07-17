@@ -1,9 +1,9 @@
-## Currently Playing on {CURRENT_PLAYING_SOURCE}
+## Now I'm listening to 7 Years
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/d_H4AdS8vCA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UC0c4bK_92XYr0YtASqqWOJg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/LHCob76kigA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCl6-24cszKqIYLkBzo02XzQ)
 
-DJ Snake (DJ 스네이크), J Balvin(제이 발빈) 및 오즈나 - Loco Contigo(피처링: Nicky Jam, 나티 나타샤, Darell, Sech)
+Lukas Graham(루카스 그레이엄) - {CURRENT_PLAYING_NAME}
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 3:16:58
+Last updated at 2020. 7. 17. 오후 3:18:58
