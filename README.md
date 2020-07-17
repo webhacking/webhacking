@@ -6,4 +6,4 @@
 
 **Albums**: School Rapper2 Team-Battle Part 3
 
-Last updated at 2020. 7. 17. 오후 6:01:37
+Last updated at 2020. 7. 17. 오후 6:02:37
