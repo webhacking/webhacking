@@ -1,9 +1,9 @@
-## Now I'm listening Havana(피처링: 영 서그) 🎵🎵
+## Now I'm listening What Lovers Do(피처링: SZA) 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/BQ0mxQXmLsk/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCsZIVNwBqtPBX-41kO_rQzQ)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/5Wiio4KoGe8/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCdFe4KkWwZ_twpo-UECR-Nw)
 
-Camila Cabello(카밀라 카베요)
+Maroon 5(마룬 파이브)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 5:43:37
+Last updated at 2020. 7. 17. 오후 5:44:37
