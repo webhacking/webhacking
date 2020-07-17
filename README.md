@@ -6,4 +6,4 @@ Avicii(아비치) - {CURRENT_PLAYING_NAME}
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 3:23:12
+Last updated at 2020. 7. 17. 오후 3:24:12
