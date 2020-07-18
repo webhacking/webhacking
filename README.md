@@ -1,9 +1,9 @@
-## Now I'm listening 전혀(피처링: Woo) 🎵🎵
+## Now I'm listening Let Me Love You(피처링: Justin Bieber(저스틴 비버)) 🎵🎵
 
-[<img align="left" width="100" src="https://lh3.googleusercontent.com/L1RvFYc2v1gq9BUVu5kgG2AdaekuP22fBAydkTZH1a_WE-3nEAjoF66gMVWi6ANBfcByD-PB8CQNCRH9dA">](https://music.youtube.com/channel/UCmb1h6hIQHKxzfUbebHD60w)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/euCqAq6BRa4/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UC0c4bK_92XYr0YtASqqWOJg)
 
-VINXEN
+DJ Snake (DJ 스네이크)
 
-**Albums**: 고등래퍼2 Final
+**Albums**: undefined
 
-Last updated at 2020. 7. 17. 오후 6:11:37
+Last updated at 2020. 7. 18. 오후 11:35:19
