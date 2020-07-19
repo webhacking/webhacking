@@ -1,9 +1,9 @@
-## Now I'm listening 데스파시토(피처링: 대디 양키) 🎵🎵
+## Now I'm listening What Do You Mean? 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/kJQP7kiw5Fk/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCk91oFc2hY2CdHirU93baLg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/DK_0jXPuIr0/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCGvj8kfUV5Q6lzECIrGY19g)
 
-Luis Fonsi(루이스 폰시)
+Justin Bieber(저스틴 비버)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:45:07
+Last updated at 2020. 7. 19. 오후 6:46:07
