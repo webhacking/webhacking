@@ -1,9 +1,9 @@
-## Now I'm listening Waiting For Love 🎵🎵
+## Now I'm listening Wolves 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/cHHLHGNpCSA/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCuACQmW04T3v9Mz_1_suFYw)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/cH4E_t3m3xM/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCeBYRgPhy8kcRmIGQWKuqdQ)
 
-Avicii(아비치)
+Selena Gomez(셀레나 고메즈) 및 Marshmello(마시멜로)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:40:07
+Last updated at 2020. 7. 19. 오후 6:41:07
