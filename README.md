@@ -1,9 +1,9 @@
-## Now I'm listening Come & Get It 🎵🎵
+## Now I'm listening 잇 에인트 미 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/n-D1EB74Ckg/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCeBYRgPhy8kcRmIGQWKuqdQ)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/u3VTKvdAuIY/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCkhjJ1ozo9YkGtZ2Vl-QpwA)
 
-Selena Gomez(셀레나 고메즈)
+Kygo(카이고) 및 Selena Gomez(셀레나 고메즈)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:32:07
+Last updated at 2020. 7. 19. 오후 6:33:07
