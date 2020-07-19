@@ -1,9 +1,9 @@
-## Now I'm listening Cold Water(피처링: Justin Bieber(저스틴 비버), MØ) 🎵🎵
+## Now I'm listening Animals 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/nBtDsQ4fhXY/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCKQ-xBLhj3SkN9Wz6MwjLaA)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/qpgTC9MDx1o/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCdFe4KkWwZ_twpo-UECR-Nw)
 
-Major Lazer(메이저 레이저)
+Maroon 5(마룬 파이브)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:26:07
+Last updated at 2020. 7. 19. 오후 6:27:07
