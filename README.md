@@ -6,4 +6,4 @@ Kygo(카이고) 및 Selena Gomez(셀레나 고메즈)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:34:07
+Last updated at 2020. 7. 19. 오후 6:35:07
