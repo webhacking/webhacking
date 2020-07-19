@@ -1,9 +1,9 @@
-## Now I'm listening Let Me Love You(피처링: Justin Bieber(저스틴 비버)) 🎵🎵
+## Now I'm listening Cold Water(피처링: Justin Bieber(저스틴 비버), MØ) 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/euCqAq6BRa4/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UC0c4bK_92XYr0YtASqqWOJg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/nBtDsQ4fhXY/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCKQ-xBLhj3SkN9Wz6MwjLaA)
 
-DJ Snake (DJ 스네이크)
+Major Lazer(메이저 레이저)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 18. 오후 11:35:19
+Last updated at 2020. 7. 19. 오후 6:23:38
