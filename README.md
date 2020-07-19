@@ -6,4 +6,4 @@ Major Lazer(메이저 레이저)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 19. 오후 6:23:38
+Last updated at 2020. 7. 19. 오후 6:24:38
