@@ -1,9 +1,9 @@
-## Now I'm listening Let Me Love You(피처링: Justin Bieber(저스틴 비버)) 🎵🎵
+## Now I'm listening Payphone(피처링: Wiz Khalifa(위즈 칼리파)) 🎵🎵
 
-[<img align="left" width="100" src="https://i.ytimg.com/vi/euCqAq6BRa4/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UC0c4bK_92XYr0YtASqqWOJg)
+[<img align="left" width="100" src="https://i.ytimg.com/vi/KRaWnd3LJfs/sddefault.jpg?sqp=-oaymwEWCJADEOEBIAQqCghqEJQEGHgg6AJIWg&rs">](https://music.youtube.com/channel/UCdFe4KkWwZ_twpo-UECR-Nw)
 
-DJ Snake (DJ 스네이크)
+Maroon 5(마룬 파이브)
 
 **Albums**: undefined
 
-Last updated at 2020. 7. 20. 오후 12:03:19
+Last updated at 2020. 7. 20. 오후 1:26:51
